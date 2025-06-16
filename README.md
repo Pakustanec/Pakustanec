@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Pakustanec||
 - 👀 I’m interested in capucin
 - 🌱 I’m currently learning ..
-- 💞️ I’m looking to collaborate on zdfvsergaerg
+- 💞️ I’m looking to collaborate on cghjmvh,hukm
 - 📫 How to reach me .gfn
 - 😄 Pronouns: ...yjtdhesght
 - ⚡ Fun fact: ..yghn
