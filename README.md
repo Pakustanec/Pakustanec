@@ -2,7 +2,7 @@
 - 👀 I’m interested in capucin
 - 🌱 I’m currently learning ..
 - 💞️ I’m looking to collaborate on frtgh
-- 📫 How to reach me .cfdserdcvuio
+- 📫 How to reach me .fcdccuctyuhbn
 - 😄 Pronouns: ...yjtdhesght
 - ⚡ Fun fact: ..yghn
 Pakustanec/Pakustanec is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
